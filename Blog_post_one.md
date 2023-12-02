@@ -1,5 +1,5 @@
 
-## It's Just Sickle Cell Not The End Of The World
+### It's Just Sickle Cell Not The End Of The World
 
 The world is about to end, this is what revolves around my inner mind whenever there is a situation of crisis that causes crucial pains all around the different parts of the body. I begin to wonder why me. what's this!, this is not how I want to live my life, I want to be free, I want to be happy, healthy, and full of strength. but some things just can't be changed rather can only be managed.
 
