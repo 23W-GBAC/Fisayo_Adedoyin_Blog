@@ -25,12 +25,12 @@ I have therefore come to the conclusion that rather than having a mindset that o
 
 6. Manage pain effectively: Communicate any pain or discomfort to your doctor. Work with them to develop a pain management plan that may include medications, physical therapy, and relaxation techniques.
 
+7. Know your genotype and choose your partner wisely: Do not reproduce children into pain because of love, check your genotypic compatibility before marriage.
+
+Finally, remember to stay informed.,  get educated and learn as much as you can about sickle cell disease and share your knowledge with family, friends, and healthcare providers. We all are what we believe, like i said, IT'S JIST SICKLE CELL, IT'S NOT THE END OF THE WORLD.
+
 
 
 
 [Homepage](README.md)
-
-7. Know your genotype and choose your partner wisely: Do not reproduce children into pain because of love, check your genotypic compatibility before marriage.
-
-Finally, remember to stay informed.,  get educated and learn as much as you can about sickle cell disease and share your knowledge with family, friends, and healthcare providers. We all are what we believe, like i said, IT'S JIST SICKLE CELL, IT'S NOT THE END OF THE WORLD.
 
