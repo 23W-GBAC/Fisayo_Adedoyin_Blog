@@ -1,6 +1,6 @@
 # Socio-cultural And Enviromental Effects On Healthy Living In Nigeria .
 
-My name is Fisayo, I am fron Nigeria.
+My name is Fisayo, I am from Nigeria.
 In this blog, I would like to write about Socio-cultural And Enviromental Factors That Affect Healthy Living In Nigeria
 
 Healthy living is one of the most precious gift from God. As the general saying goes, health is wealth. 
