@@ -10,5 +10,5 @@ Nigerians strive for a better healthcare system and healthy living irrespective 
 
 1. [Sickle cell is not the end of the world](Blog_post_one.md)
 2. [Impact of Rapid Urbanization And Waste Management On Healthy Living](Blog_post_two.md).
-3.
+3. [Traditional Medicine and Health Practices In Nigeria](Blog_post_three.md)
 4.
